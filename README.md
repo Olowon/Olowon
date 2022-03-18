@@ -1,4 +1,5 @@
-### welcome
+### HIhihihihihi
+### whne the splonky hits
 how do I use this site lol
 
 <!--
