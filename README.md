@@ -1,5 +1,5 @@
 ### welcome
-what would you like to do?
+how do I use this site lol
 
 <!--
 **Olowon/Olowon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
